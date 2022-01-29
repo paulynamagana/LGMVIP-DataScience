@@ -1,0 +1,4 @@
+As a security/defense analyst, try to find out the hot zone of terrorism.
+
+Terrorism, in its broadest sense, is the use of intentional violence to achieve political aims. The term is used in this regard primarily to refer to violence during peacetime or in the context of war against non-combatants (mostly civilians and neutral military personnel).
+The terms "terrorist" and "terrorism" originated during the French Revolution of the late 18th century but became widely used internationally and gained worldwide attention in the 1970s during the Northern Ireland conflict, the Basque conflict, and the Israeli–Palestinian conflict. The increased use of suicide attacks from the 1980s onwards was typified by the 2001 September 11 attacks in the United States.
